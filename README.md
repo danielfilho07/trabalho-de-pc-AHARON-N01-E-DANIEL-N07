@@ -1,1 +1,1 @@
-# trabalho-de-pc-AHARON-N01-E-DANIEL-N07
+# Pensamento-Computacional-1-B-n-1-e-n-7
